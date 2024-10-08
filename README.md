@@ -8,4 +8,4 @@ Meu nome é Gabriel Moraes
 
   ### Você entrar em contato comigo
 
-  @gabriel_.moraes14
+  @ga.moraes7
